@@ -1,1 +1,0 @@
-# QU-N-L-I-M-SINH-VI-N
